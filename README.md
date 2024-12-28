@@ -12,4 +12,4 @@ Honkai rail,Genshin impact,southpark?,Countryhumans/balls,Danganronpa,roblox pla
 # ABT ME: 
 Call me Yin,i prefer he/him/Vir ISTJ./sagi.⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ 16,Ŧє๓คɭє ++ audhd ౨ৎ 9w1 04/12/2024 @𝒹ℯ𝓁𝒾𝒶 + autistic er..☾..im often online busy..at school..and you can always meet me at the genshinimpact spot !
 
-(DONT COPY MY PONIES..OR MY FRIENDS WILL CHASE YOU AND HUNT YOU DOWN INCLUDING ME)
+(DONT COPY MY PONIES..OR MY FRIENDS WILL CHASE YOU AND HUNT YOU DOWN INCLUDING ME...)
