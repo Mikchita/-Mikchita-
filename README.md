@@ -18,3 +18,4 @@ Call me Yin,i prefer he/him/Vir ISTJ./sagi.⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚�
 ![image](https://scontent.fmnl9-1.fna.fbcdn.net/v/t1.15752-9/471740104_1697855494107390_8832677854840840517_n.png?_nc_cat=110&ccb=1-7&_nc_sid=9f807c&_nc_ohc=tQTmnG9ICVgQ7kNvgFhpTy4&_nc_zt=23&_nc_ht=scontent.fmnl9-1.fna&oh=03_Q7cD1gGl_rhw7PwknvF18ECb6rJq8uKn0WquXYwPwS6NV9RnNA&oe=67A005CE)
 ![image](https://scontent.fmnl9-2.fna.fbcdn.net/v/t1.15752-9/467471236_1297656591376578_7602190009242163363_n.png?_nc_cat=101&ccb=1-7&_nc_sid=9f807c&_nc_ohc=dA1Py1VAkGIQ7kNvgG13JSI&_nc_zt=23&_nc_ht=scontent.fmnl9-2.fna&oh=03_Q7cD1gEqNgvx-FTIKgjxXw9dvXwHIlFI-L5xPEybvSv8_Y9o3A&oe=67A00F0D)
 ![image](https://scontent.fmnl9-4.fna.fbcdn.net/v/t1.15752-9/467486237_1295300171504777_7651151830496736341_n.png?_nc_cat=105&ccb=1-7&_nc_sid=9f807c&_nc_ohc=Kc66zwFG_NEQ7kNvgEUdpEl&_nc_zt=23&_nc_ht=scontent.fmnl9-4.fna&oh=03_Q7cD1gHI6IaYFphrxXawHgLkNSTTm6A-AtDqFPdRVWv4b-yvXA&oe=67A00653)
+
